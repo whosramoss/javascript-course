@@ -1,4 +1,4 @@
-# Javascript thoughts 
+# Javascript Course 
 
 Sometimes when stress and daily problems begin to affect income on the job, it is common for us to spend more time solving small problems that could be solved quickly if there was patience or time available. ⌚️⌚️ 
 
